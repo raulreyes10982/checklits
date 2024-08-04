@@ -1,0 +1,1 @@
+# lista de chequeo del centro comercial ventura plaza
